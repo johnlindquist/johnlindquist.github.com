@@ -4,46 +4,46 @@ title: 10 Things I Learned from Tracking My Food
 ---
 
 ## Why?
-I've tracked everything I've eaten, every day, for the past 8 weeks. Iím 6í3î and currently weigh 217lbs. I also know all the measurements for my chest, belly, arms, and legs, but thatís a story for another day.
-Iíve been fat. I think about 330lbs, but I was too ashamed to get on a scale. When I decided to do something about it, I started running (well, walking, then jogging, then running). I ate better, but I honestly have no idea exactly what I ate. I remember trying a couple of quick-fix diets which made me way too hungry, so I just stuck to eating better and running more. Over the years, I started playing basketball and lifting weights. All this exercise worked and I made my way down to the 230lbs. I felt great, then I broke my wrist.
-A broken wrist was a big setback. I turned to food for comfort for a few months and put on a good 20lbs or so. Clothes were getting tight and I was pretty ticked with myself. My wrist cast came off, so it was time to get back to work. It was slow going. Weak wrists and arms didnít help with lifting or basketball (you try not moving your wrist for 4 months then shooting a free throw and tell me how it goes). I was determined, yet still frustrated. I was having a really hard time losing weight this time around (I felt stuck around 240), so it was time to get serious.
+I've tracked everything I've eaten, every day, for the past 8 weeks. I‚Äôm 6‚Äô3‚Äù and currently weigh 217lbs. I also know all the measurements for my chest, belly, arms, and legs, but that‚Äôs a story for another day.
+I‚Äôve been fat. I think about 330lbs, but I was too ashamed to get on a scale. When I decided to do something about it, I started running (well, walking, then jogging, then running). I ate better, but I honestly have no idea exactly what I ate. I remember trying a couple of quick-fix diets which made me way too hungry, so I just stuck to eating better and running more. Over the years, I started playing basketball and lifting weights. All this exercise worked and I made my way down to the 230lbs. I felt great, then I broke my wrist.
+A broken wrist was a big setback. I turned to food for comfort for a few months and put on a good 20lbs or so. Clothes were getting tight and I was pretty ticked with myself. My wrist cast came off, so it was time to get back to work. It was slow going. Weak wrists and arms didn‚Äôt help with lifting or basketball (you try not moving your wrist for 4 months then shooting a free throw and tell me how it goes). I was determined, yet still frustrated. I was having a really hard time losing weight this time around (I felt stuck around 240), so it was time to get serious.
 ## What?
-Leonard, a friend with a hard-earned body that looks like a superhero, challenged me to track my food. I mentioned to him that I was having a hard time getting over these food cravings, so he said, ìEvery time you crave something, add it to a list. After 8 weeks of tracking food, eat everything on that list on one dayî. He laid out a simple plan for me to track against. Higher carbs on lifting days (fruits, grains, fish, birds, veggies), higher fats (veggies, nuts, pigs, cows) on rest days. Simply live by the ìif it fits your macros of carbs, fat, protein for the day, you can eat itî.
-Well, Iíve made it 8 weeks. Tomorrow is my ìEpic Cheat Dayî where I get to eat everything on my cravings list. Iím going to log everything I eat, maybe even take pictures. Why am I doing it then? Because it was part of the plan. Iím a little scared, because I know it will set me back from the progress Iíve made. Iíve lost 4î off my belly, lost 14lbs, and Iím getting much stronger. I have more ambitious goals to reach by the end of the year, so Iíll follow up on those when I get there.
-Here are some things Iíve learned about myself in the process that I wanted to share.
+Leonard, a friend with a hard-earned body that looks like a superhero, challenged me to track my food. I mentioned to him that I was having a hard time getting over these food cravings, so he said, ‚ÄúEvery time you crave something, add it to a list. After 8 weeks of tracking food, eat everything on that list on one day‚Äù. He laid out a simple plan for me to track against. Higher carbs on lifting days (fruits, grains, fish, birds, veggies), higher fats (veggies, nuts, pigs, cows) on rest days. Simply live by the ‚Äúif it fits your macros of carbs, fat, protein for the day, you can eat it‚Äù.
+Well, I‚Äôve made it 8 weeks. Tomorrow is my ‚ÄúEpic Cheat Day‚Äù where I get to eat everything on my cravings list. I‚Äôm going to log everything I eat, maybe even take pictures. Why am I doing it then? Because it was part of the plan. I‚Äôm a little scared, because I know it will set me back from the progress I‚Äôve made. I‚Äôve lost 4‚Äù off my belly, lost 14lbs, and I‚Äôm getting much stronger. I have more ambitious goals to reach by the end of the year, so I‚Äôll follow up on those when I get there.
+Here are some things I‚Äôve learned about myself in the process that I wanted to share.
 
 ## Everyone Loves a List
-#####1.	You get stronger every time you say ìnoî
+#####1.	You get stronger every time you say ‚Äúno‚Äù
 
-   Itís not like the temptations or go away, but I did seem to develop a greater willpower to say ìnoî the more I did it. Health requires a ton of effort and patience.
+   It‚Äôs not like the temptations or go away, but I did seem to develop a greater willpower to say ‚Äúno‚Äù the more I did it. Health requires a ton of effort and patience.
 #####2.	Hunger is worse than cravings
 
-   Want that cookie? What other food are you willing to sacrifice to eat it? I started to identify ìjunkî food as food that literally wasted carbs and fat away in my macro budget. Junk food becomes way less appealing if youíre going to have to go hungry the rest of the day (and we all know how junk food just makes you want to eat more junk food).
+   Want that cookie? What other food are you willing to sacrifice to eat it? I started to identify ‚Äújunk‚Äù food as food that literally wasted carbs and fat away in my macro budget. Junk food becomes way less appealing if you‚Äôre going to have to go hungry the rest of the day (and we all know how junk food just makes you want to eat more junk food).
 #####3.	Inches Are Better than Pounds
 
-   You can feel your belly getting smaller. You can feel your clothes getting looser. I havenít really felt lighter. Iím learning to focus more on measurements and photos than actual pounds on a scale.
-#####4.	I Donít Enjoy Cooking or Meal Planning
+   You can feel your belly getting smaller. You can feel your clothes getting looser. I haven‚Äôt really felt lighter. I‚Äôm learning to focus more on measurements and photos than actual pounds on a scale.
+#####4.	I Don‚Äôt Enjoy Cooking or Meal Planning
 
-   Iíve never enjoyed using a recipe to throw a meal together and a stricter diet didnít help. Iím fine with tossing some fish in the fridge in the morning to thaw throughout the day then bake for dinner, but thatís about the maximum effort Iím willing to put into it. I still pretty much eat what I can find based on what my macros allowed for the day. Unfortunately, I often end up a 5pm (or earlier) having already eaten my allowed macros, then Iíd just have to make it to the end of the day. That might sound bad, but Iím used to it and it works for me.
-#####5.	Iím lucky I love fish
+   I‚Äôve never enjoyed using a recipe to throw a meal together and a stricter diet didn‚Äôt help. I‚Äôm fine with tossing some fish in the fridge in the morning to thaw throughout the day then bake for dinner, but that‚Äôs about the maximum effort I‚Äôm willing to put into it. I still pretty much eat what I can find based on what my macros allowed for the day. Unfortunately, I often end up a 5pm (or earlier) having already eaten my allowed macros, then I‚Äôd just have to make it to the end of the day. That might sound bad, but I‚Äôm used to it and it works for me.
+#####5.	I‚Äôm lucky I love fish
 
-   I rediscovered my love for fish because my macros pretty much forced me into it. My wife hates the smell and my kids donít eat it, so this was a solo effort. If youíre okay with fish, shrimp, etc and just tossing it in with some greens and a tiny drizzle of dressing, then youíre good to go. Otherwise, youíd better love birds.
+   I rediscovered my love for fish because my macros pretty much forced me into it. My wife hates the smell and my kids don‚Äôt eat it, so this was a solo effort. If you‚Äôre okay with fish, shrimp, etc and just tossing it in with some greens and a tiny drizzle of dressing, then you‚Äôre good to go. Otherwise, you‚Äôd better love birds.
 #####6.	Tracking Food Becomes a Habit
 
-   I almost subconsciously reach for my phone to log my food whenever I eat now. It was a huge concerted effort when I start, but now itís natural. Although, it does add another level of ìWhereís my phone?î throughout the day.
+   I almost subconsciously reach for my phone to log my food whenever I eat now. It was a huge concerted effort when I start, but now it‚Äôs natural. Although, it does add another level of ‚ÄúWhere‚Äôs my phone?‚Äù throughout the day.
 #####7.	Let Numbers Be Your Guide
 
-   Having choice is hard. Having choice without restrictions to reign you in can lead to disaster. Having specific numbers to try and reach my goal gives me a sense of accomplishment each day that ìI did something good for myself todayî.
+   Having choice is hard. Having choice without restrictions to reign you in can lead to disaster. Having specific numbers to try and reach my goal gives me a sense of accomplishment each day that ‚ÄúI did something good for myself today‚Äù.
 #####8.	Knowing What You Eat is the Foundation of Health
 
-   Sugar somehow has the magic ability to shut down your brain and force you into a zombie-like eating state. Mindlessly eating (not eating minds, thatís real zombies) is a recipe for disaster.
+   Sugar somehow has the magic ability to shut down your brain and force you into a zombie-like eating state. Mindlessly eating (not eating minds, that‚Äôs real zombies) is a recipe for disaster.
 #####9.	Putting Food Back is Hard
 
-   Itís difficult to reach into the pantry, read a food label, realize you canít eat something you want, then put it back. Same with measuring food on a food scale. If you pour out too much, youíve got to put some back. Itís hard, but necessary.
+   It‚Äôs difficult to reach into the pantry, read a food label, realize you can‚Äôt eat something you want, then put it back. Same with measuring food on a food scale. If you pour out too much, you‚Äôve got to put some back. It‚Äôs hard, but necessary.
 #####10.	Serving Sizes Are Tiny
 
-   Using a food scale on every meal is an eye-opening experience if youíre like me and youíve always simply eaten until you were full. Luckily, over time, your stomach (the organ) shrinks back down to a normal size and you get fuller faster, but you do have to readjust by going through periods of hunger. Itís hard, deal with it.
+   Using a food scale on every meal is an eye-opening experience if you‚Äôre like me and you‚Äôve always simply eaten until you were full. Luckily, over time, your stomach (the organ) shrinks back down to a normal size and you get fuller faster, but you do have to readjust by going through periods of hunger. It‚Äôs hard, deal with it.
 
-## Whatís next?
+## What‚Äôs next?
 
-Iíll follow-up at the end of the year. There will be lots of pictures and data to scour through. I talk to Leonard all the time about progress and planning. For now, Iím just going to stay the course until I hit my goals.
+I‚Äôll follow-up at the end of the year. There will be lots of pictures and data to scour through. Leonard has been a huge help with progress and planning. For now, I‚Äôm just going to stay the course until I hit my goals.
